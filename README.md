@@ -1,2 +1,2 @@
 # NEO-0-XY
-this repo is gonna contain my first works, wish me luck
+My coding journey starts here. Wish me luck!
