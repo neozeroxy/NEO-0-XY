@@ -1,2 +1,2 @@
-# NEO-0-XY
-My journey starts here. Wish me luck!
+# Angel
+I learned my lesson, forgive your guardian human.
